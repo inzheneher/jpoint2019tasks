@@ -1,0 +1,1 @@
+Here are tasks from different companies from JPOINT2019.
